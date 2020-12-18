@@ -1,0 +1,1 @@
+my life hasn't been the same since my master darth sidious has adopted me from Dathomir. I was never supposed to be a sith lord, but the fate of Darth plagieus made me what I could truly become. I am a sith lord.

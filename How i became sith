@@ -1,0 +1,6 @@
+It all started when I was a young boy, and I was robbed from my mother for the greater good. I endured lots of pain and learned many things.
+I was 8 yrs old when my master enrolled me into the orsis academy of assasins. They didn't allow force users so I had to not use the force while still being in the academy. I was there for 7 years, and became a top student. Then, my master wanted me to destroy all of the academy with what I learned.
+My master took me to a remote planet where I had to survive off of nothing for 8 months with no one by my side.
+These months passed and my master returned to see a broken site of ribs wrapped with red skin. He then challenged me to a dule, but I ultimately lost.
+My master was seemingly dissapointed at my performance. He then said that I was replaced in the time I was here. I got very furious after that, and leaped to my master to bite his arm.
+He then cackled at what I had done, and explained how the goal was to make me angry enough to attack him, he never replaced me. From that moment forward, I became a sith lord.
